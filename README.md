@@ -8,7 +8,7 @@
 
 "quote"
 
-♡ Sol/William/afton | she/he/they/it | SYS
+♡ Stu/William/afton | she/he/they/it | SYS
 ♡ I'm talkative, it's shutting me up that's the trick /j
 ♡ interests: FNAF , Gravity falls , Scream , bsd , mha (fandom dniuf or i do) , Stranger things , + more
 ♡ my dni: is I block freely to create my own space. 
