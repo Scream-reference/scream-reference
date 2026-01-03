@@ -4,7 +4,7 @@
     
 ![Profile view counter](https://komarev.com/ghpvc/?username=your-github-ranpothedetective&label=visitors)
 
-![Image](https://github.com/user-attachments/assets/67940d7f-a5aa-4e91-99c4-a9a4a57c51d1)
+![Image](https://github.com/user-attachments/assets/801515f4-e903-4c9a-b6b1-ca9879651fab)
 
 "quote"
 
@@ -12,5 +12,3 @@
 ♡ I'm talkative, it's shutting me up that's the trick /j
 ♡ interests: FNAF , Gravity falls , Scream , bsd , mha (fandom dniuf or i do) , Stranger things , + more
 ♡ my dni: is I block freely to create my own space. 
-
-![Image](https://github.com/user-attachments/assets/9f881065-82a8-46b8-a78e-80bb4ddec650)
